@@ -1,8 +1,8 @@
 # Hi, I'm Eesha !
 
 🧚🏽‍♀️ **she/her**<br>
-🧚🏽‍♀️ **Third year Engineering Student**<br>
-🧚🏽‍♀️ **Technical Director, [ACM-VIT](https://github.com/ACM-VIT)**
+🧚🏽‍♀️ **Third Year Engineering Student**<br>
+🧚🏽‍♀️ **Technical Director, [ACM-VIT](https://github.com/ACM-VIT)** [2020-21]
 
 ---
 
