@@ -4,7 +4,7 @@
 🧚🏽‍♀️ **she/her**<br>
 🧚🏽‍♀️ **First Year AI Grad @ Carnegie Mellon University**<br>
 🧚🏽‍♀️ **Technical Director 2020-21, [ACM-VIT](https://github.com/ACM-VIT)** [2020-21]<br>
-🧚🏽‍♀️ **[Resume](https://github.com/eeshashetty/eeshashetty/raw/main/Eesha%20Resume%20December%202022.pdf)**
+🧚🏽‍♀️ **[Resume](https://github.com/eeshashetty/eeshashetty/blob/main/Eesha%20Resume%20February%202023.pdf)**
 
 ---
 
